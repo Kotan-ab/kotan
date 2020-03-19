@@ -1,4 +1,4 @@
-Ayo-abidolu Ooeoluwakotan Abraham
+Ayo-abidolu Ooreoluwakotan Abraham
 ayoabidoluk@gmail.com
 Kotan
 Mobile and Backend 
